@@ -1,3 +1,7 @@
+<name>Black Lust</name>
+<thumb>http://pornodtl.es/media/k2/items/cache/0e0514bd909d75fb3d922de2e94fb05b_XL.jpg</thumb>
+<url>http://www.flashx.tv/azwt9321k9ot.html</url>
+#
 <name>Cum Hard</name>
 <thumb>http://photos.bz.contentdef.com/8793/pics/img/0554.jpg?nvb=20150321162842&nva=20150324110842&hash=0f278b9498f174110960f</thumb>
 <url>http://filenuke.com/f/O1kqkd6</url>
