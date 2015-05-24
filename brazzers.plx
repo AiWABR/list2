@@ -1,4 +1,8 @@
 #
+<name>TEST BB</name>
+<thumb>http://pornodtl.es/media/k2/items/cache/0e0514bd909d75fb3d922de2e94fb05b_XL.jpg</thumb>
+<url>http://www.flashx.tv/m2vjyla9bxhy.html</url>
+#
 <name>TEST PSA</name>
 <thumb>http://pornodtl.es/media/k2/items/cache/0e0514bd909d75fb3d922de2e94fb05b_XL.jpg</thumb>
 <url>http://vidbull.com/r7p4936rs53m.html</url>
