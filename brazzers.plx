@@ -14,6 +14,7 @@
 <name>TEST PSA</name>
 <thumb>http://pornodtl.es/media/k2/items/cache/0e0514bd909d75fb3d922de2e94fb05b_XL.jpg</thumb>
 <url>http://vidbull.com/r7p4936rs53m.html</url>
+<description>The whole time dude was walking with his girl Kaylee down the block, all he could think about were those huge tits busting out of her top. Soon as they got back home, that slut dropped to her knees to blow him, then rode his cock til she came over and over.</description>
 #
 <name>Black Lust</name>
 <thumb>http://pornodtl.es/media/k2/items/cache/0e0514bd909d75fb3d922de2e94fb05b_XL.jpg</thumb>
