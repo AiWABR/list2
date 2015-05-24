@@ -1,3 +1,6 @@
+<folder>Brazzers</folder>
+<url>https://github.com/AiWABR/list2/raw/master/brazzers.plx</url>
+<img>https://encrypted-tbn2.gstatic.com/images?q=tbn:ANd9GcT9H9XtSQKKzkoEPNeZ6dAzJvH7ys0O98KfzdyBBHQS1ds6AbwGlQ</img>
 #
 <name>TEST PSA Flash</name>
 <thumb>http://pornodtl.es/media/k2/items/cache/0e0514bd909d75fb3d922de2e94fb05b_XL.jpg</thumb>
